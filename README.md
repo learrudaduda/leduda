@@ -4,4 +4,4 @@
 _lele e duda_
 
 
-![llllll](https://tenor.com/pt-BR/view/gap-slapped-knock-out-punch-gif-5122019)
+![soquinhobebe](https://media1.tenor.com/m/wAx8P0HZlJAAAAAC/gap-slapped.gif)
